@@ -1,4 +1,4 @@
-![MasterHead](https://imgflip.com/gif/5yauub)
+![MasterHead](https://www.unite.ai/wp-content/uploads/2023/08/Heisenbergforlife_a_computer_terminal_emerges_in_a_zen_garden_._ea47ba79-60a0-4cdc-9161-106980a2f185.png)
 
 <h3 align="center"> < Atharva Saraiya > </h3>
 
